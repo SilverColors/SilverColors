@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![image](https://github.com/SilverColors/SilverColors/assets/69147413/ef6f3fbc-ccb7-495d-9a67-acbe0b00f5b0)
+
 <!--
 **SilverColors/SilverColors** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
