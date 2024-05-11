@@ -1,13 +1,12 @@
 ### Hi there 👋
 
 
+![ensemble-stars-enstars](https://github.com/SilverColors/SilverColors/assets/69147413/e20b8cf9-d03c-4318-940b-498776b8f9a2)
 
 <!--
 **SilverColors/SilverColors** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
-
-![ensemble-stars-enstars](https://github.com/SilverColors/SilverColors/assets/69147413/bf625c37-ba9f-4e94-a05d-7bafa401e1d1)
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
