@@ -4,6 +4,7 @@
 ![ensemble-stars-enstars](https://github.com/SilverColors/SilverColors/assets/69147413/e20b8cf9-d03c-4318-940b-498776b8f9a2)
 ![ensemble-stars-enstars (1)](https://github.com/SilverColors/SilverColors/assets/69147413/2f1d183a-d7d6-4b14-8819-94ae8e2dd46b)
 ![ritsu-sakuma](https://github.com/SilverColors/SilverColors/assets/69147413/0c72c855-a37b-4973-bfee-14989794fdf3)
+![ensemble-stars-enstars (2)](https://github.com/SilverColors/SilverColors/assets/69147413/7c680d98-1f5e-422b-a8d7-c1280b53a3d9)
 
 
 **SilverColors/SilverColors** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
