@@ -1,5 +1,5 @@
 
-![b36fcc791a08bbcd47bca3f0a542fd8d446c02ab_hq](https://github.com/SilverColors/SilverColors/assets/69147413/bf00684b-e9b1-4cd8-b11f-6ea6722ec1df)![b36fcc791a08bbcd47bca3f0a542fd8d446c02ab_hq](https://github.com/SilverColors/SilverColors/assets/69147413/bf00684b-e9b1-4cd8-b11f-6ea6722ec1df)![b36fcc791a08bbcd47bca3f0a542fd8d446c02ab_hq](https://github.com/SilverColors/SilverColors/assets/69147413/bf00684b-e9b1-4cd8-b11f-6ea6722ec1df)
+![b36fcc791a08bbcd47bca3f0a542fd8d446c02ab_hq](https://github.com/SilverColors/SilverColors/assets/69147413/bf00684b-e9b1-4cd8-b11f-6ea6722ec1df)![b36fcc791a08bbcd47bca3f0a542fd8d446c02ab_hq](https://github.com/SilverColors/SilverColors/assets/69147413/bf00684b-e9b1-4cd8-b11f-6ea6722ec1df)
 
 
 
