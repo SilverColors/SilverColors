@@ -19,7 +19,7 @@
 
 -she/her
 
--enstars, the legend of zelda, bungo to alchemist, star stable online, alicia onlile, pony town
+-enstars, the legend of zelda, bungo to alchemist, star stable online, alicia online, pony town
 
 -I love fireflies so much!
 
