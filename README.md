@@ -23,16 +23,7 @@
 
 -I love fireflies so much!
 
-![20210115175237_74f95 (2)](https://github.com/SilverColors/SilverColors/assets/69147413/62fdd110-eb20-4b7d-9387-881fcd4a4ead)![grave-of-the-fireflies-grass](https://github.com/SilverColors/SilverColors/assets/69147413/76b0daa5-32a2-4de0-b493-1cca564f7214)![ritsu-sakuma-enstars (1)](https://github.com/SilverColors/SilverColors/assets/69147413/daee71bf-196a-4a6e-b83d-7c417ea1e25a)
-
-
-
-
-
-
-
-
-
+![20210115175237_74f95 (2) (1)](https://github.com/SilverColors/SilverColors/assets/69147413/16c3043b-2d74-47d7-8b6d-e5c44b69d491)![grave-of-the-fireflies-grass (1)](https://github.com/SilverColors/SilverColors/assets/69147413/cb2cef8e-4518-49c9-9c17-1c75c8f64c91)![ritsu-sakuma-enstars (1) (1) (1)](https://github.com/SilverColors/SilverColors/assets/69147413/3e13dd48-b5d2-40d3-81a5-45da20d42f4e)
 
 
 ![owl-city-adam](https://github.com/SilverColors/SilverColors/assets/69147413/13548661-3fa7-46dd-ad6e-ff5ba71348d0)![owl-city (1)](https://github.com/SilverColors/SilverColors/assets/69147413/ea0acad8-f361-4d0d-9c50-97d2580b026d)
